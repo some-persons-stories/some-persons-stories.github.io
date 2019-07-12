@@ -1,6 +1,6 @@
 # What is this?
 I'm a real person.
-I have some weird stories.
+I have some ~~weird~~ funny/weird/interesting/odd/whatever stories.
 
 I'm going to be extremely revealing with these, so please don't dox me or something if you do figure out who I am.
 It's met to be entertaining.
